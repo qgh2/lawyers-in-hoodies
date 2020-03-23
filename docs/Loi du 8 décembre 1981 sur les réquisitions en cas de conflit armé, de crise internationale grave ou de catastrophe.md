@@ -1,5 +1,3 @@
-
-
 Loi du 8 décembre 1981 sur les réquisitions en cas de conflit armé, de crise internationale grave ou de catastrophe.
 Chapitre Ier. - Les conditions d'exercice du droit de réquisition
 Chapitre II. - Les autorités et personnes investies du droit de réquisition
